@@ -2,7 +2,6 @@
 - 👀 I’m interested in roblox and dinosaurs
 - 🌱 I’m currently learning drawing, animation, and video editing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
 - 😄 Pronouns: any
 - ⚡ Fun fact: not sure
 
